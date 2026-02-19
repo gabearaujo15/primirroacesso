@@ -1,4 +1,4 @@
-# olá esse é o meu perfil, seja bem vindo ao mundo do futebol !
+# olá esse é o meu perfil, seja bem vindo ao mundo do futebol!
 
 - meu nome e Gabryel Araujo
 - sou atacante e volante
@@ -10,4 +10,6 @@ c.gabryel@escola.pr.gov.br
 
 
 ![](https://media.tenor.com/LcPXHKbfwAcAAAAM/neymar-jr.gif)
+
+
 
