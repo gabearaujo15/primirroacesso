@@ -3,4 +3,7 @@
 - meu nome e Gabryel Araujo
 - sou atacante e volante
 - gosto de ver as noticias no site:[Ge.Globo](https://ge.globo.com/)
+- utilizo este espaço para ficar por dentro do futebol
+
+# você pode entrar em contato comigo pelo 
 
