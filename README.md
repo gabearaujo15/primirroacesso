@@ -2,4 +2,5 @@
 
 - meu nome e Gabryel Araujo
 - sou atacante e volante
-- gosto de ver as noticias no site:
+- gosto de ver as noticias no site:[Ge.Globo](https://ge.globo.com/)
+
