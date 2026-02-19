@@ -6,4 +6,5 @@
 - utilizo este espaço para ficar por dentro do futebol
 
 # você pode entrar em contato comigo pelo 
+c.gabryel@escola.pr.gov.br
 
